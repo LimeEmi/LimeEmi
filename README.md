@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LimeEmi
+- 👀 I’m interested in breathing
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on a discord meme bot
+- 📫 How to reach me ... you cant 
